@@ -10,7 +10,11 @@ One of my favorite memories from this summer was going to Maui, Hawaii, and spen
 
 One of my core values is perseverance. I believe that when something is difficult, it is important to keep trying instead of giving up right away. This value has shaped the way I approach challenges because I try to stay positive and keep working even when something doesn’t come easily to me. Looking toward the future, I know I want to pursue a career in the medical field, and I am currently considering becoming a pediatrician or dermatologist. I am still figuring out exactly what I want to do, but I know I want to have a career where I can help people. I can’t wait for a great school year!
 
+Sincerely, 
+
+Sophia Petokian
 
 [This is my playlist!](https://open.spotify.com/playlist/6bfsCKI1YD29jqfr4OjSxJ?si=fBna9-NFQQiHhn_we9LnaA&utm_source=copy-link&pt=c47638ff2730bec6776d9b28a6378f5f&pi=hwlb4z9WTTmmf)
 
 Here is my photo collage! 
+![Collage images](collage.png)
