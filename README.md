@@ -12,3 +12,5 @@ One of my core values is perseverance. I believe that when something is difficul
 
 
 [This is my playlist!](https://open.spotify.com/playlist/6bfsCKI1YD29jqfr4OjSxJ?si=fBna9-NFQQiHhn_we9LnaA&utm_source=copy-link&pt=c47638ff2730bec6776d9b28a6378f5f&pi=hwlb4z9WTTmmf)
+
+Here is my photo collage! 
